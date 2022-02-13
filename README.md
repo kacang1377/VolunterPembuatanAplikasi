@@ -7,3 +7,4 @@ Dalam rangka adanya sayembara pembuatan aplikasi, maka bagi siapapun yang bermin
 Berikut daftar volunteer yang diterima:
 
 * Oon Arfiandi, [oo.or.id](https://oo.or.id).
+* Dzakwan Daffa Ramdhana, [Linkedin](https://www.linkedin.com/in/dzakwan-daffa-ramdhana-b8ab22134).
